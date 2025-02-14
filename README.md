@@ -2,7 +2,7 @@
 
 About the Scotties Tournament of Hearts
 
-**✅👉📺 Watch Here 2025 Scotties Tournament of Hearts Live**
+[**✅👉📺 Watch Here 2025 Scotties Tournament of Hearts Live**](https://curling.fanfanatics.live/?refd_by=usa25)
 
 The Scotties Tournament of Hearts is an annual curling championship for women's teams in Canada.
 It is one of the most prestigious events in the curling world and attracts top talent from across the country.
